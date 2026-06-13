@@ -1,3 +1,0 @@
-# Apoyar
-
-Contactos, donaciones
